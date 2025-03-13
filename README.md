@@ -1,3 +1,3 @@
 hi
-- i'm craxelgaming2100
+- i'm NotCraxel (or Craxelgaming2100)
 - you can call me craxel!!
